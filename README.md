@@ -26,7 +26,7 @@ Please do ⭐ the repository, if you like this.😊
 <br />
 
 <br />
- 📧 Email : me.gupta511@gmail.com
+ 📧 Email : aman015018@gmail.com
 
 
 
